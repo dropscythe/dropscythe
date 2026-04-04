@@ -5,7 +5,7 @@
    <br>
    
 🤍 I'm 𝐁𝐫𝐚𝐦 !! <br>
-**he/him**, adult, minors IWC! <br>
+**he/they**, adult, minors IWC! <br>
 gay & masc nonbinary <br>
  <br>
  𝘵𝘩𝘪𝘴 𝘨𝘪𝘵𝘩𝘶𝘣 𝘪𝘴 𝘷𝘵 𝘤𝘦𝘯𝘵𝘦𝘳𝘦𝘥. 𝘐'𝘮 𝘢𝘭𝘴𝘰 𝘷𝘦𝘳𝘺 𝘯𝘦𝘸 𝘵𝘰 𝘵𝘩𝘦 𝘤𝘰𝘮𝘮𝘶𝘯𝘪𝘵𝘺. 𝘧𝘰𝘳 𝘮𝘺 𝘦𝘹𝘵𝘦𝘯𝘥𝘦𝘥 𝘭𝘪𝘴𝘵 𝘰𝘧 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴, 𝘢𝘴𝘬 𝘧𝘰𝘳 𝘮𝘺 𝘮𝘢𝘪𝘯 𝘱𝘳𝘰𝘧𝘪𝘭𝘦!<br>
