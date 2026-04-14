@@ -21,7 +21,7 @@ cud/cover comfort. 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 �
  <br>
 
 <p align="center">
-「 send me gimmicks mwah ty  」
+「 send me gimmicks & sign my ata mwah ty  」
 </p>
 <br>
 <p align="center">
@@ -36,10 +36,13 @@ cud/cover comfort. 𝘶𝘴𝘶𝘢𝘭𝘭𝘺 𝘴𝘪𝘵𝘵𝘪𝘯𝘨 �
 ➤ Kaelix Debonair<br>
 ➤ Doppio Dropscythe<br>
 ➤ Alban Knox<br>
+➤ Octavio<br>
  <br>
 Not classified as oshi, but I still love them very much:<br>
  <br>
 ➤ Meloco Kyoran<br>
 ➤ Seible<br>
-➤ Freodore
+➤ Freodore<br>
+➤ Elias Delborne<br>
+➤ Sonny Brisko
 </details>
